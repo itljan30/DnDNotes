@@ -1,0 +1,3 @@
+- Audrick, the mute member of Cyndal's party, has asked us to go to [[Montopia]] to visit a wizard that will be able to speak again.
+- After meeting with [[Frederick]], he requested us to retrieve a book he somehow lost in the mines to the northeast of Montopia
+- 

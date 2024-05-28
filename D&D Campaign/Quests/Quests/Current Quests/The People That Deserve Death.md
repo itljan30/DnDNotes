@@ -1,1 +1,0 @@
-- While speaking the the owner of the Emberwhite Emporium, we were told there are multiple organizations that treat their animals poorly: Franklin's and Sekuse 
