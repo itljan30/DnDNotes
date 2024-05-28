@@ -27,15 +27,6 @@
 	- [[Mask]]
 	- [[Owner of the Emberwhite Emporium]]
 	- [[Staven blacksmith]]
-- **PCs**
-	- [[Echo Lasurift]]
-	- [[Gigget]]
-	- [[Lily]]
-	- [[Pomni Man]]
-	- [[Rimeia]]
-- **Settlements**
-	- [[Montopia]]
-	- [[Town of Wayside]]
 
 %% End Waypoint %%
 
