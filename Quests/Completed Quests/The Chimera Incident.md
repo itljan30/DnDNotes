@@ -1,9 +1,0 @@
-- [[Ben]] has asked us to assist [[Cyndal Trueshot|Cyndal]] and himself get rid of a chimera that has been terrorizing his crops. 
-- After speaking with [[Cyndal Trueshot|Cyndal]] we found a recipe for a potion that will be able to get rid of the chimera.
-- After speaking with the local magic man we found out he has most ingredients except for Muck Root and Goblin Snot.
-- After visiting the woods we were able to get the missing ingredients.
-- We took the ingredients to local magic man to have him brew the potions.
-- We discovered that there was no chimera and [[Cyndal Trueshot|Cyndal]] was just using that as a cover story to steal from him.
-- While we were confronting [[Cyndal Trueshot|Cyndal]] about her lies, in an ironic coincidence a real chimera attacked us.
-- After working with [[Cyndal Trueshot|Cyndal]] and her group we were able to kill the chimera.
-- [[Cyndal Trueshot|Cyndal]] turned herself in and we got our reward from [[Ben]].

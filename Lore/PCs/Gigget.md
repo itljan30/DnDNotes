@@ -1,3 +1,0 @@
-#wip
-
-Gnome Warlock - Daniel

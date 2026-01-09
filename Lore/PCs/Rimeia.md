@@ -1,3 +1,0 @@
-#wip
-
-Tiefling Bard - Isaac
